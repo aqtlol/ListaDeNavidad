@@ -18,7 +18,7 @@ Lo quiero un engraving
 ## Pace Breaker Linerless Short 5" LuLu🍋
 Me gustan estos shorts de 5" inseam. Aqui estan los colores que me gustaron
 
-* [Ivory🏳️](https://shop.lululemon.com/p/men-shorts/Pace-Breaker-Short-5-Linerless/_/prod9930001?color=49844)
+* [Ivory🏳️](https://shop.lululemon.com/p/men-shorts/Pace-Breaker-Short-5-Linerless/_/prod9930001?color=49844){:target="_blank"}
 * [Black🏴](https://shop.lululemon.com/p/men-shorts/Pace-Breaker-Short-5-Linerless/_/prod9930001?color=0001)
 
 ## QuickSilver🌊
